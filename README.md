@@ -2,7 +2,7 @@
 - 👀 I’m interested in your mom
 - 🌱 I’m currently learning poses
 - 💞️ I’m looking to collaborate in bed
-- 📫 How to reach me kateo99 on insta
+- 📫 How to reach me tavamamma123 on ph
 
 <!---
 bigdongslayer/bigdongslayer is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
